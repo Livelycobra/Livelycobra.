@@ -3,7 +3,7 @@ Rules and Etiquette For Plug.dj.
 
 • No songs over 6 minutes.
 
-• EDM only.
+• Durring A Livestream Please Do !theme To Veiw The Rooms Theme .
 
 • We DON'T allow swearing, or the use of racism/stereotypes.
 
